@@ -317,3 +317,20 @@ I mostly worked on the documentation video.
 
 # 13th Feb 2026, Friday 
 
+Yeah I mean again I didn't really do anything. Just worked on the documentation video which I finally completed and exported. I need to show it to the seniors for some changes.   
+
+# 14th Feb 2026, Saturday
+
+Valentine's Day ❤ ❤ ❤ It was fun yipppeee
+
+We watched in the mood for love (sad fucking film) and then we went out in the night to Versova to have street food. 
+
+# 16th Feb 2026, Monday
+
+## 01:56 PM
+
+I came in at around 1:30 PM, and yeah I got enough sleep I guess. I mostly spent my morning doing nothing. I had to throw away that awful old ass chana that was in my tiffin. It had the worst smell ever, I couldn't get it out of my head for a while.
+
+The Rapido driver took way too long to show up, I knew that I was going to be late. I thought about taking another rapido to the office instead of walking. But I just felt like I, didn't have to. I don't get paid enough for this. I don't even do work when I'm at the office. It's been 20 minutes or so and I still haven't really done anything yknow. Doesn't make sense that I would even have to anyways because there is just no actual work for me. So I'm just going to work on Namak today I guess. 
+
+Surendra came to ask if I wanted lunch so I'm just going to have lunch now. 
