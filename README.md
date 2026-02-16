@@ -18,8 +18,6 @@ Kedhhar told us to gather some case studies, picking some from: [This Medium Art
 Specifically:\
 [Lucky Yatra Ticket](https://www.youtube.com/watch?v=19fzAvuFq0I)\
 [Caption with Intent](https://www.youtube.com/watch?v=19fzAvuFq0I)\
-[Lucky Yatra Ticket](https://www.youtube.com/watch?v=19fzAvuFq0I)\
-[Caption with Intent](https://www.youtube.com/watch?v=19fzAvuFq0I)\
 [Penny Price Packs - Packaging Project](https://www.youtube.com/watch?v=wXx6z3mDnVc)\
 [Paris 2024 Olympics Opening](https://www.youtube.com/watch?v=QhzcYYDzbnQ)\
 [Kitkat vs Phones Campaign](https://lbbonline.com/news/kitkat-call-for-a-collective-phone-break)\
@@ -334,3 +332,26 @@ I came in at around 1:30 PM, and yeah I got enough sleep I guess. I mostly spent
 The Rapido driver took way too long to show up, I knew that I was going to be late. I thought about taking another rapido to the office instead of walking. But I just felt like I, didn't have to. I don't get paid enough for this. I don't even do work when I'm at the office. It's been 20 minutes or so and I still haven't really done anything yknow. Doesn't make sense that I would even have to anyways because there is just no actual work for me. So I'm just going to work on Namak today I guess. 
 
 Surendra came to ask if I wanted lunch so I'm just going to have lunch now. 
+
+## 04:24 PM
+
+There is no work today AAAAAAAAAAAAAAA. I know I do have work that I need to do. But yeah I just, I don't even know what to do atp.
+
+The Whole Truth Case study 
+
+- bts 
+- campaign success
+- words from director
+- words for agency
+- response from audience/ celebs
+- motion graphics
+- song history (its connection to Indian audience)
+- research and pre production
+- packaging for competitor brand
+- use of color & sound effects
+
+Found a few references for the case study me and Atharva are going to work one
+
+## 07:38 PM
+
+Now I'm just going to go home, I already stayed for way too long today again! brah. I don't even know why. Stupid stupid stupid.
