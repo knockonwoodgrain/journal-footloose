@@ -144,7 +144,7 @@ I talked to Rudra 🚗 for like 2 fucking hours oh my god, I promised him that w
 [^mn]:
     {-} I love rudra
 
-![Offic Cat 🐱](./Cat WhatsApp Image 2026-02-03 at 3.21.05 PM.jpeg) 
+![Offic Cat 🐱](Cat WhatsApp Image 2026-02-03 at 3.21.05 PM.jpeg) 
 
 Yeah I really need to go to sleep dawg
 
