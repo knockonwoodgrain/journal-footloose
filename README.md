@@ -378,3 +378,23 @@ I think I feel tired. I felt tired as I climbed up a mountain of stairs juggling
 Maybe I would do it tomorrow, idk how I feel about anything really.
 
 Atharva isn't here today, he's sick and I want to wish him well. I don't really have much work to do. I'm just going to reimagine my film "Lost Life", turn it into reality the way I concieved it.
+
+I'm so phased that Mudita to write some short captions for the UC Shoot Post. I'm pretty sure they already have a caption ready, but they need it for thanking the Director.
+
+Anyways, here are a few options I'm preparing:
+- Thank you so much, @mr.nicecat & @manjabrandworks, this shoot wouldn't exist without your creativity and strategy. This journey has been an "Emotional rollercoaster" `this sucks`
+
+- 'Emotional Atyachaar' was bohot (very?) mazedaar! All thanks to @mr.nicecat & @manjabrandworks for bringing wit & strategy for this shoot. 
+
+- 'Ye directing writing kaun karega' is never a dilemma when we have @mr.nicecat & @manjabrandworks getting the job done!   
+
+- Aapki *bai* aaye ya na aaye @mr.nicecat & @manjabrandworks always show up with meticulous directing & witty writing!
+
+- With @mr.nicecat & @manjabrandworks on the team, making wonderful films is as easy as "Ek, Do, Teen, Chaar, Che! AND CUT"
+
+Mudita appreciated **" 'Ye directing writing kaun karega' is never a dilemma when we have @mr.nicecat & @manjabrandworks getting the job done!"** So I'm just gonna rewrite it perhaps.
+
+
+
+
+
