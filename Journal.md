@@ -355,3 +355,26 @@ Found a few references for the case study me and Atharva are going to work one
 ## 07:38 PM
 
 Now I'm just going to go home, I already stayed for way too long today again! brah. I don't even know why. Stupid stupid stupid.
+
+# 17th Feb 2026, Tuesday
+
+I actually didn't write in the journal this day. But I did actually get work (finally).
+
+Atharva and me are working on the case study film for **The Whole Truth**, so we both just started working on that. I installed copyparty on the office iMac because why not, it makes it a lot easier to access data on my laptop rather than using the shitty iMac which is stable but it doesn't have enough GPU power. I really think they should've invested in a desktop PC instead, like most normal places like why the fuck would you buy an intel iMac?! whatever.
+
+I got copyparty up and running, then I started working on the motion graphics for the case study film. I'm keeping it kinda simple and fun with a collag-y and rough style like *Vox*. That's definitely going to be fun.
+
+Atharva wrote the script so I just got till the part where we needed it to be, then I went home.
+
+Dnyanu wanted me to come with her to the doctor because she wasn't feeling well. So the both of us went to this Government hospital in Adheri west, very close to Amar pav bhaji. It was a very huge hospital and we genuinely got lost in the hospital. We were told to wait for half an hour so I started reading "**Bell Jar**" In the waiting room. I think I'm falling in love with the way Sylvia Plath writes. It's sultry, yearning and depressive nature really appeals to me.
+
+We didn't have any cash, so I had to ask people if they would exchange cash with me so I could digitally reimburse them. When I asked these two fellows outside the hospital, they started ruffling around in their pockets. I glimpsed a 500 rupee note as it vanished back, right when the orange man gave me 10 rupees of crumpled money. I asked them for their UPI ID's but they wouldn't budge, I just had to let them be kind to me.
+
+# 18th Feb 2026, Wednesday
+
+## 12:01 PM
+I think I feel tired. I felt tired as I climbed up a mountain of stairs juggling my camera as the sun pierced my eyes. I caught 6 hours of sleep in the night, reason for why I look ugly today. But it's because I didn't shave, and I never shave often, so I often feel ugly. I set up to record myself in the camera but I looked at myself and thought *maybe I'll do this tomorrow, after I look better and the cat is here* 
+
+Maybe I would do it tomorrow, idk how I feel about anything really.
+
+Atharva isn't here today, he's sick and I want to wish him well. I don't really have much work to do. I'm just going to reimagine my film "Lost Life", turn it into reality the way I concieved it.
