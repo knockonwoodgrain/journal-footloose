@@ -394,7 +394,5 @@ Anyways, here are a few options I'm preparing:
 
 Mudita appreciated **" 'Ye directing writing kaun karega' is never a dilemma when we have @mr.nicecat & @manjabrandworks getting the job done!"** So I'm just gonna rewrite it perhaps.
 
-
-
-
+It's literally 11:00 PM right now, but I'm just writing this for the rest of the day after lunch. I basically re-edited my LostLife film. I should've transcoded it because now I can't show it to Mouse which is damn stupid of me to do. Yeah that's basically it. I spent around an hour setting up neovim and shit. Which is so fucking stupid man.
 
