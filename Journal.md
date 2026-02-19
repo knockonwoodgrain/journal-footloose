@@ -396,3 +396,74 @@ Mudita appreciated **" 'Ye directing writing kaun karega' is never a dilemma whe
 
 It's literally 11:00 PM right now, but I'm just writing this for the rest of the day after lunch. I basically re-edited my LostLife film. I should've transcoded it because now I can't show it to Mouse which is damn stupid of me to do. Yeah that's basically it. I spent around an hour setting up neovim and shit. Which is so fucking stupid man.
 
+# 19th Feb 2026, Thursday
+
+## 05:51 PM
+
+The entire day I basically just worked on my list of things that I need to do. I uploaded `Lost Life` to YouTube
+
+[Lost Life](https://www.youtube.com/watch?v=lSC5JQSpHKo)
+
+Then I edited a bunch of photos from the old Goa & Mumbai trips. There were some really good photos there that I must release.
+
+Found this interesting archive 
+<https://lovetheworkmore.com/2024-2/>
+
+Now I have to look for more case study references 
+
+- [ Orange - WoMen's Football](https://www.youtube.com/watch?v=DeijPwBIyK0)
+- [CeraVe - Michael CeraVe](https://www.youtube.com/watch?v=6A9zZpEzJi0)
+- [Solo Stove - Snoop Goes Smokeless](https://www.youtube.com/watch?v=Vn-cbs8ZPMM)
+
+These are genuinely just so annoying. I don't think I've been so entertained yet so pissed and annoyed at shit like this before.
+
+- [Shah Rukh Khan my-ad](https://www.dandad.org/work/d-ad-awards-archive/shah-rukh-khan-my-ad)
+- [#BringBack2011](https://www.dandad.org/work/d-ad-awards-archive/bringback2011)
+- [Subconcious Order](https://www.youtube.com/watch?v=HuAQ3UyyjaU)
+
+## 09:33 PM
+
+**Literally hell rained down on me as I tried to figure out what the fuck to do with this dilemma.**
+
+*Once upon a time* (around three years ago) I was in a sweaty, suffocating tent supposed to be sleeping besides two other men. I recall this like the haze it was. One of the men was named "*Hrit*", a tall big guy with a mouth bigger than he was. In the silver of the night he was talking about music, and he asked me "Have you listened to Peter Cat Recording Co. ?". I felt intimidated, haphazardly answering *no*. A minute before my life would change he told me to listen to this track, titled "Clown on The 22nd Dance Floor".
+
+A few lush strings, playfully questioning me before a man started speaking in the microphone. It was an eloquent jazz number with the lyrics stretching me over it's contexts.
+
+"This if from an Indian Band", I was shocked. *What?! they don't make music like this here*. 
+
+After an hour of blur around the fire I was drowsing. When I decided to listen to the entire Album. *Portrait of a Time: 2010-2016* released in 2018. That was a psychedelic experience if I've ever had one.
+
+A jazzy bar, a few lush strings and a piano tip toeing around playfully. 
+
+"We have a shoot on 1st", she smirked. I was back at the dilemma at hand. "Wait, 1st March?" I asked, hoping my ears were broken. "Yes". This is where it started, a shoot on the 1st.
+
+I met Rohan last year. Rohan Johnson was the photographer for Peter Cat Recording Co. He shot their last, big tour and I actually talked to him. TO HIM. I talked with him and I kept up and I finally asked him if I could shoot with him and he said yes. YES. I could shoot for my favorite artist! I would be meeting the band at the jazz bar and I would tell them I love them and all I've done is listen and listen for what felt like forever. The concert was on 1st March.
+
+"I can't come for the shoot", I said. I couldn't, I would never give this up so I could assist for *cleartrip*, some tourism website. They said no like they didn't hear me. They denied me this day like I didn't exist. Like I wasn't saying I couldn't be there.
+
+It didn't matter to me, if I lost this job, or if I would have to start my graduation project again. I wasn't going to give up on shooting for my favorite band.
+
+I left the office. *some fucking drama with work finally*.
+
+> Hi Pallavi, I'm really sorry but I cannot be available on the 1st of March. I've been trying to make this shoot (which is happening on the first) happen for years now and 1st March would be my only chance. 
+
+> I would completely understand if my salary is cut due to this reason (for another AD). If the Cleartrip shoot day is changed or the Concert date is changed I'll definitely be available, and even on any other weekend a shoot happens. This is just a special exception, this won't happen again.
+
+> I'm very committed to footloose and I wouldn't take a leave like this for any other reason. 
+
+> I would also like to know what is the minimum or expected time span before which I need to inform about a leave. When I joined I was told  around a one week notice should be enough.
+
+She replied after an eternity.
+
+> Hi Parth,
+I understand this is important for you, especially if you have been trying to make it happen for a while.
+At the same time, if something has been planned for months, we really need to be informed about your availability much earlier. For any planned leave, minimum of 15 days notice is required. emergencies are, of course an exception.
+
+> Also, being there for prep but not on the main shoot won't help you understand the shoot process. The shoot day is the most crucial part, especially for a project of this scale.
+
+> I am not dismissing your reason, but we need to be more proactive about communication going forward..
+
+
+I had thought of what I would do if I lost this job. It didn't have to come to that, but I was prepared. 
+
+I then had my dinner, in peace.
