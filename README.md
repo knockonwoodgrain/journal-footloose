@@ -467,3 +467,44 @@ At the same time, if something has been planned for months, we really need to be
 I had thought of what I would do if I lost this job. It didn't have to come to that, but I was prepared. 
 
 I then had my dinner, in peace.
+
+# 20th Feb 2026, Friday
+
+I'm writing this on the next day, but here's what I basically did:
+
+I woke up very late and I informed Geeta ma'am and Atharva that I was going to be late. I slept at 3 AM the previous night, so I needed the sleep either ways. 
+
+I got to the office, started working on the case study motion graphics video. That's pretty much what I did and then during lunch Ishan showed up at the office, and then Indrasish sir showed up as well in an hour.
+
+I went through the script of the cleartrip advertisement pitch, it had the script and a lot of references, I wonder who does all the references if not us. I guess it could be the agency. I recorded some stuff, I put up all the locations up on a google drive link.
+
+Here's the link
+Cleartrip Chidiya Ud Locations: <https://drive.google.com/drive/folders/1-aMRzjT-mxNwkESlwnGRUHSUyVbdkKUv?usp=sharing>
+
+I showed Indrasish sir my BTS video, and I also saw the one that the other "19 - 20" made.
+
+# 21st Feb 2026, Saturday
+
+I slept at 5 AM, working on color grading. I did all the hue v hue and hue v sat adjustments in tetra again after using the hue curve which was lowk kinda broken and very bloated. Took me way too long to do this bruh. I also figured that I needed to use the hue v hue curve for fixing the magenta shift from red. Red needed to be shifted towards orange a bit and yellow also needed to be shifted towards orange. So I just put a very very small hue variation curve right around the skin tone indicator so the colors compressed towards it. 
+
+
+Now Ishan has given me some references to find, back on the grind.
+
+NEED TO LOOK FOR 
+
+Interesting Framing refs - 
+
+Flying refs - 
+
+Landing refs - How are they landing?
+
+Elements of worry going away - Pen paper - Marksheet - Briefcase opens up - 
+
+Silhouettes - Shots that are silhouettes
+
+Mundane life - Frames and ideas
+
+Shots where go pro is required - 
+
+Music reference - Karnatic music style (IM has 2 refs, take from him)
+
