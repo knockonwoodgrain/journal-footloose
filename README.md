@@ -508,3 +508,12 @@ Shots where go pro is required -
 
 Music reference - Karnatic music style (IM has 2 refs, take from him)
 
+Mudita has again assigned me to come up with a caption 😭😭. Bro what?!
+
+It's for a post for Surya ma'ams "the Honor" award.
+
+- Proud of @suryab for getting recognized at the Khaufnak #theHonours spotlight by @thehollywoodreporter for Khauf
+
+- Our very own @suryab at #theHonours spotlight by @thehollywoodreporter
+
+- We are very *honoured* to see @suryab recognized at #theHonours by @thehollywoodreporter for Khauf
