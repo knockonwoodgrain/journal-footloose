@@ -731,14 +731,31 @@ Me and Mouse spent the day together, after I got my haircut. We watched Superbad
 
 When we reached DC, I ordered the momos, then I told mouse to wait there. She was hesitant at first but then she realized why I wanted her to wait. I went to the cake shop at got blueberry cheesecake & I ordered the Shwarma. I went back to her and I gave her the cake and she was so happy :D. But she said that I should give this to my Mom. *Yeah you're right*. I went back to the alleys to get her a bouquet of purple flowers. I wished I asked him the name.
 
-Mouse was so happy with the flowers. It was reall
+Mouse was so happy with the flowers. It was really late by the time we started leaving for my place. I started panicking kinda because I thought that we would end up missing the bus. We went back home, had the dal chawal very quickly and left for the bus. We got on the bus on time.
 
+I reached Mouse's place around 12:30 AM. We slept right after we reached.
 
+# 9th March 2026, Monday
+I came to the office and I started looking for references and started looking for my lens mount because I needed to fix it. I didn't really do much the entire day except look up stuff.
 
+I looked up where I can buy a hard drive in Mumbai and I got some pretty good deals. Dad hasn't replied yet so I don't really know when I'm going to get it. I went to Mouse's place and made Dal Chawal which took way too much time. It was decided that I'll be sharing dinner with them, which makes everything much easier for me. 
+
+I also watched most of Saw by contrapoints. I'm genuinely blanking out about what all I did. I had streetside paratha.   
+
+# 10th March 2026, Tuesday
+I woke up and I packed my Dal Rice in the morning, I made rice in the morning. It actually looked pretty good.
+
+I went to work and I got rid of a bunch of junk on my hard drive. Created almost 200 gigs of extra space which is so awesome. Thank Fuck. I was genuinely just running out of space so bad. It took me a while to do that. After which I sat on editing all the footage from the PCRC concert. By the end of the day I finished the edit and exported a prores file. 
+
+Ofcourse when I uploaded it to YouTube it completely butchered it along with the gamma as well. Fuck youtube. I'm just going to upload it to my website. 
+
+I had momos outside, and they were really bad. I'm not having momos from that place again. At night I had chole and roti
 
 
 # 11th March 2026, Wednesday
 Surya ma'am called me at 11, but I reached at 11:16 and she was pretty upset at that. I had to make egg bhurji so I couldn't just skip that yknow.
+
+I reached the office 17 minutes late and that made Surya Ma'am pretty upset. I understand why, but in retrospect 17 minutes isn't a huge amount of time and the scolding I got was pretty disproportionate. People take shit here way too seriourly. 
 
 She explained to me that she needed referencing for this TV show, and they already picked out a bunch of movies that I could reference from, making my job much easier honestly. 
 
@@ -781,3 +798,16 @@ Ref: Past Lives, Fleabag
 Rumi is back at her home. Realizing that the love she lacked was always within her, and within the people she loved. She meets Rishabh again, and processes how her parents treated her.
 
 I spent the entire day finding references. I am getting a little stress considering the work I need to do before my mid course.
+
+I met Lemn which was actually pretty nice. We had like 3 plate of momos and then we went to versova beach where we smoked a vista. It was nice, I couldn't believe that they're still 18.
+
+I went home and Mouse made me delicious Dosa! :)
+
+# 12th March 2026, Thursday
+I woke up and made roti and aloo. I really messed up the aloo by cooking it at high heat 💔. It was dumb of me, which is also why I got late. I am undershooting how much time I'm needing to cook. Next I'm just going to start at 9:45.
+
+I got to the office and I didn't really have any work. The entire day I've just sat here and did nothing. I finished Saw by Contrapoints. I did a bunch of color work. Refined and created my latest LUTs for lightroom profiles. Both for Sony and Fujifilm. 
+
+I also spent a bunch of time on this film grain python program. I made it such that it can process RGB files as well. Which is pretty cool. I uploaded Remain In Me to google cloud. So I could share it with my friends since I didn't put it up on my website
+
+I'm gonna go home soon now. I don't know what the future holds for me.
