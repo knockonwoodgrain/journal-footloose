@@ -811,3 +811,38 @@ I got to the office and I didn't really have any work. The entire day I've just 
 I also spent a bunch of time on this film grain python program. I made it such that it can process RGB files as well. Which is pretty cool. I uploaded Remain In Me to google cloud. So I could share it with my friends since I didn't put it up on my website
 
 I'm gonna go home soon now. I don't know what the future holds for me.
+
+I went to Mouse's place straight up and had Dosa which was so delicious wow. I also had a packet of wai wai. I'm always hungry.
+
+At 11:30 Pallavi Ma'am called me because she needed me to do some work. I had to redo some dialogue for the cleartrip chidiya udd 25 second advertisement. Im wanted the children playing to say "tota udd", which was missing from the original dialogue.
+
+first I tried replacing the naina udd, but it turned out that he wanted both naina and tota udd. Which was definitely difficult to figure out. I had to merge the 60 second advert and the 25 second one and mess with their audios till I got it right.
+
+I did this healthy gamer gg meditation before sleeping, which is lowk so amazing. I will do it again. It helped a lot, but I also got a cramp in my calf.
+
+# 13th March 2026, Friday
+Fridayyyy, 😭 I still have work on saturday this sucks. I woke up and I had to make bhendi. Which I thought would be fairly simple (and it was).
+
+I didn't prepare enough bhendi which I realized after I had cooked it.
+
+I also messed up the dough. I added too much water and even though I added more dough to compensate for it. I didn't do a good enough job. So after resting for a while it was still a little sticky. Which ended up being a huge problem. Since I had to remake two rotis and use a lot of dough while rolling them out so they ended up being dry and chewy. This cooking shit is hard man. How did my mom do this every day when I was in school. This is wild.
+
+I reached office at 11:06 AM. I thought that Surya ma'am might be mad at me but she was outside the office and she didn't even say anything. I don't really care atp because imagine scolding someone for being 6 minutes late. 
+
+I'm in office and I watched this [minutephysics video](https://www.youtube.com/watch?v=ZWSvHBG7X0w&pp=ugUEEgJlbg%3D%3D) about ISO which was pretty interesting and cool. Though I kind of knew a bunch of it, I was hoping he would get into EI and how cinema cameras handle it, because I'm still damn confused about that shit.
+
+Yeah I'm caught up. UGH. I need to do soo many things and I'm so stressed. 
+
+I need to start working on my GP book. I need to start working on my GP itself. Which I have a lot of "content" for, but I need to start putting it together. I'm thinking I'm just going to show them my markdown file, along with my videos and photos.
+
+I want to make something like a digital magazine, a website with videos and all that properly layouted etc. It's going to be a hell of a task, but I'll have to do it. It's gonna be a lot of fun.
+
+I had the idea to gift Lifafa and Lifafa full of photos and a letter and a QR code to the curated PCRC webiste, I just need to confirm guestlist spot with Rohan first. They didn't really use anything that I shot but it's okay. I don't really care about that I guess. I thought I did.
+
+I don't really care about a lot of stuff that's on instagram, I'm thinking that I want to quit it. I will quit it. I'm trying to use it less and less but there isn't much progress. It kind of sucks how much everyone is sucked in into it.
+
+I emailed everyone that I needed a half day on Saturday and I needed the day off on 18th for my midcourse. I'm so dead.
+
+I worked on my website eht entire day. I fixed Refs on the home page. Like an idiot I was calling my ref hook inside the map function. Which meant that only the last one (mumbai) was assigned any ref at all. I'm surprised the website didn't break. I had to create an array of refs and then assign as a callable ref. Which has pretty similar syntax, it just comes with having to declare every ref and check for it etc.
+
+I am leaving, it's 07:11 and I'm leaving, bye bye going home byee.
